@@ -62,9 +62,12 @@ The remaining information were displayed using table
 ### RECOMMENDATION
 
 •	It will be highly recommended for the companies to also produce a car whose engine uses, Petrol than diesel, this is to make their company make more sales, as most of City products uses Petrol.
+
 •	Petrol is also easier to get compared to the other types of fuel, this will also determine the preference people will consider while buying car
+
 •	The distance the car can also cover is also a major fact that determines how far the sales the company will also make.
+
 •	It is advisable for one to register is company as a car brand if one has interest in car business has people have confidence in buying product from the companies than from an individual.
+
 •	Lastly, the other companies should work on their brands to enhance their sales.
-People also give high preference to buying manual car than automatic car, because there is high level of involvement in the controlling than automatic, and research shows that manual car are lesser in price than automatic.
-•	
+People also give high preference to buying manual car than automatic car, because there is high level of involvement in the controlling than automatic, and research shows that manual car are lesser in price than automatic.	
